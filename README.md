@@ -1,0 +1,1 @@
+# Ejercicio7-nft-preview-card
